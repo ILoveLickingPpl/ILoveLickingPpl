@@ -14,6 +14,8 @@ oii, mi's **Nightwave** y'all know *and* love !! Finally got my hands on READme
 
 <div align="center">
 
+$💥RUSSIAN〢ENGLISH💥$
+
   ➫ ▿**Tranformers** , , *JJK*      ┊  she/her>
 
 Gacha Life , , Dandy's World ◂ꕥ  ╼   he/him 
