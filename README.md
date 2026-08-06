@@ -33,7 +33,7 @@ Gacha Life , , Dandy's World ◂ꕥ  ╼   he/him
 
 um I still unno how to make it work ok
 
-I ship freely, I c+h freely (enc), I cuss freely, I jk freely, I'm bein a part of any fandom, regardless of how problematic creators/fandom are, freely .
+I ship freely, I c+h freely (enc), I cuss freely, I jk freely, I block freely, I judge freely, I participate in any media, regardless of how problematic creators/fandom are, freely .
 
 **TO BE CONTINUED**
 
